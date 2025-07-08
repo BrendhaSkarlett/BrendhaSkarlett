@@ -1,5 +1,5 @@
 # Brendha-Skarlett
-Meu nome é Brendha Skarlett,tenho 16 anos,atualmente aluna do curso **técnico em informática para internet**,Ipatinga/MG.
+Meu nome é Brendha Skarlett,tenho 17 anos,atualmente aluna do curso **técnico em informática para internet**,Ipatinga/MG.
 
 # Unidades curriculares
 ## Concluídas
